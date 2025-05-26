@@ -26,8 +26,8 @@ Danial Maleki shall not be liable for any damages arising out of the use or inab
 
 For permissions or inquiries, please contact:  
 **Danial Maleki**  
-Email: your.email@example.com  
-Website: https://yourwebsite.com
+Email: danialamg64@gmail.com
+Website: https://persialinux.ir
 
 ---
 
